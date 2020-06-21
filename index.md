@@ -20,5 +20,4 @@ After the series ended, J.K. Rowling said in an interview that Luna became the â
 * does not hesitate in telling or asking you something
 
 > My mum always said things we lose have a way of coming back to us in the end. If not always in the ways we expect.
-
-https://upload.wikimedia.org/wikipedia/commons/thumb/8/81/Evanna_Lynch_acrylic_ink.jpg/800px-Evanna_Lynch_acrylic_ink.jpg -Automatic!
+<img src="https://upload.wikimedia.org/wikipedia/commons/thumb/8/81/Evanna_Lynch_acrylic_ink.jpg/800px-Evanna_Lynch_acrylic_ink.jpg"/>
